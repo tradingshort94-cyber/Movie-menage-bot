@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://telegra.ph/file/68d28011b2bc356b5db01.png" alt="Lazy Princess Logo">
+  <img src="https://img.sanishtech.com/u/3d97619009a2f98ee856f42d76215a60.png" alt="Lazy Paul Logo">
 </p>
 <h1 align="center">
   <b> 𝐋𝐄𝐀𝐙𝐘  𝐏𝐀𝐔𝐋 🪬 </b>
